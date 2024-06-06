@@ -1,3 +1,1 @@
-This Is The Repository of The Kill Da Bees Game Series AND our other games
-idgaf about bugs. 
-idk how to code...
+wassup
